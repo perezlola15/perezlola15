@@ -15,7 +15,7 @@
  
 ## 📫 Cómo contactarme
 - LinkedIn: https://www.linkedin.com/in/lola-perez-ruiz/
- - Correo electrónico: lo.ruiz97@gmail.com
+ - Correo electrónico: lo.ruiz97 @ gmail.com
  
 ¡Gracias por visitar mi perfil! 😊
 
